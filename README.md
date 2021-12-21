@@ -1,5 +1,5 @@
 # Hi, guy
-My name is celt. I'm beginner programmer.
+My name is Сelt. I'm beginner programmer.
 
 # What i learning?
 I learning Python and C#.
