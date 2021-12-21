@@ -6,3 +6,5 @@ I learning Python and C#.
 
 # P.S
 If you have questions for me, write here: telegram: @celt_is_god, discord: celt_is_god#9920
+
+беру в ротик за 100 в попку за 200
